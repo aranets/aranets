@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🍓•⩊• HELLO! My name is Ze-ann Codilla Araneta
 ❀🍡🇵🇭 1st Year Student & Aspiring Dev<br>❀🍰Learning the ropes of Android & desktop development. Focused on building, growing, and solving real-world problems.<br>❀🩷 Currently a first year BSIT student at Bohol Island State University.⊹ ࣪ ˖<br>❀🍥 Actively Learning, Haven't Built anything yet!⊹ ࣪ ˖<br><br>
 
 
